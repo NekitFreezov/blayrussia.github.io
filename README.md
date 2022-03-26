@@ -1,1 +1,1 @@
-# blayrussia.online
+# blayrussia.github.io
